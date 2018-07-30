@@ -1,4 +1,3 @@
 # labprjkt
 
-my first upload 
-i am compelled by my lab teachers for this.
+my first upload,so happy me
